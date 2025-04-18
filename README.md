@@ -25,7 +25,7 @@
 	</li>
 </ul>
 
-<p dir="ltr">Nếu Mệnh là cái gốc, thì Thiên Di là &ldquo;cái bóng&rdquo; &ndash; phản ánh tương tác giữa ta và thế giới. Khi Lộc Tồn ở Thiên Di, nghĩa là sự may mắn về tài chính, phúc đức, sự ổn định sẽ đồng hành cùng ta trong hành trình bước ra đời:&nbsp;<strong><a class="in-cell-link" href="http://SPL5" target="_blank">thiên di thiên phủ</a></strong></p>
+<p dir="ltr">Nếu Mệnh là cái gốc, thì Thiên Di là &ldquo;cái bóng&rdquo; &ndash; phản ánh tương tác giữa ta và thế giới. Khi Lộc Tồn ở Thiên Di, nghĩa là sự may mắn về tài chính, phúc đức, sự ổn định sẽ đồng hành cùng ta trong hành trình bước ra đời:&nbsp;<strong><a class="in-cell-link" href="[https://crypto.jobs/talent/profile/master-2](https://crypto.jobs/talent/profile/master-2)" target="_blank">thiên di thiên phủ</a></strong></p>
 
 <h2 dir="ltr"><strong>Ý nghĩa tổng quan của Lộc Tồn cung Thiên Di</strong></h2>
 
@@ -41,7 +41,7 @@
 
 <p dir="ltr">Người có Lộc Tồn ở Thiên Di hiếm khi vướng phải thị phi hay tai họa khi đi xa. Nếu có gặp khó khăn thì cũng dễ được giúp đỡ, quý nhân trợ vận. Đây là thế mạnh đặc biệt trong vận trình di chuyển, thay đổi môi trường sống hoặc nghề nghiệp.</p>
 
-<p dir="ltr">Liêm Trinh ở cung Thiên Di nếu gặp Tứ Sát có thể khiến tài khí bị chặn đứng:&nbsp;<strong><a class="in-cell-link" href="http://SPL7" target="_blank">liêm trinh cung thiên di</a></strong></p>
+<p dir="ltr">Liêm Trinh ở cung Thiên Di nếu gặp Tứ Sát có thể khiến tài khí bị chặn đứng:&nbsp;<strong><a class="in-cell-link" href="[https://www.facer.io/user/mdz2I6vv0m](https://www.facer.io/user/mdz2I6vv0m)" target="_blank">liêm trinh cung thiên di</a></strong></p>
 
 <h2 dir="ltr"><strong>Phân tích chi tiết Lộc Tồn cung Thiên Di theo mệnh cục</strong></h2>
 
