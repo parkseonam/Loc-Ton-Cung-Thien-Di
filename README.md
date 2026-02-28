@@ -25,7 +25,7 @@
 	</li>
 </ul>
 
-<p dir="ltr">Nếu Mệnh là cái gốc, thì Thiên Di là &ldquo;cái bóng&rdquo; &ndash; phản ánh tương tác giữa ta và thế giới. Khi Thiên Phủ kết hợp cùng Thiên Di, nghĩa là sự may mắn về tài chính, phúc đức, sự ổn định sẽ đồng hành cùng ta trong hành trình bước ra đời:&nbsp;<strong><a class="in-cell-link" href="https://crypto.jobs/talent/profile/master-2" target="_blank">thiên di thiên phủ</a></strong></p>
+<p dir="ltr">Nếu Mệnh là cái gốc, thì Thiên Di là &ldquo;cái bóng&rdquo; &ndash; phản ánh tương tác giữa ta và thế giới. Khi Thiên Phủ kết hợp cùng Thiên Di, nghĩa là sự may mắn về tài chính, phúc đức, sự ổn định sẽ đồng hành cùng ta trong hành trình bước ra đời:&nbsp;<strong><a class="in-cell-link" href="https://www.dibiz.com/marywilson" target="_blank">thiên di thiên phủ</a></strong></p>
 
 <h2 dir="ltr"><strong>Ý nghĩa tổng quan của Lộc Tồn cung Thiên Di</strong></h2>
 
